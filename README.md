@@ -1,4 +1,4 @@
-# TheCodeNotTakenT_T
+# TheCodeNotTakenT-T
 A personal portfolio
 <p align="center">
   <a href="https://readme-typing-svg.demolab.com">
